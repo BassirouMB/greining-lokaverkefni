@@ -1,0 +1,1 @@
+# greining-lokaverkefni
